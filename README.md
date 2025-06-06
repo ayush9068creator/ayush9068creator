@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ayush9068creator
-- 👀 I’m interested in Ethecal Hacking 
+- 👀 I’m interested in Gaming
 - 🌱 I’m currently learning Computer Programming
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me by searching Legend Streamer on Youtube
